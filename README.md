@@ -1,4 +1,4 @@
-https://tomarujjwal.github.io/future-ready-talent-project/
+https://nice-wave-0f465ae10.2.azurestaticapps.net
 
 **Industry:** Lifestyle
 
